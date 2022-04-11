@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gregirving
-- 👀 I’m interested in primary care research 
+- 👀 I’m a doctor and clinical epidemiologist interested in primary care research 
 - 🌱 I’m currently learning how to use the Open Safely platform
 - 💞️ I’m looking to collaborate on studies incolving multimorbidity and cardiovascular disease. 
 - 📫 You can reach me on irvingg@edgehill.ac.uk 
